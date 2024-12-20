@@ -1,1 +1,1 @@
-![63bfa20b6e5658bff2c8236b52933261](https://github.com/user-attachments/assets/3f785883-0e81-4a45-a0b2-8dc5964858f3)
+![lain-serial-experiments-lain](https://github.com/user-attachments/assets/ebb5ae2e-2133-4e77-8830-0737d8b41b35)
